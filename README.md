@@ -1,3 +1,3 @@
-#Abbas Mahmoud Badreddine
+Abbas Mahmoud Badreddine
 
-#cph-ab632@cphbusiness.dk
+cph-ab632@cphbusiness.dk
